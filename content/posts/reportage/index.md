@@ -23,9 +23,9 @@ Die Opfer haben meist eine Art Tunnelblick, sie sehen keine andere Möglichkeit,
 
 Als Nina endlich den Mut fasste, mit ihrer besten Freundin Mirjam* über die Gewalttätigkeit von Kevin zu sprechen, war diese sehr entsetzt. Kevin war doch immer so ein charmanter, freundlicher Kerl und höflich zu Mirjam. Das Schicksal von Nina bedrückte Mirjam so fest, dass sie eine Internet-Recherche betrieb und auf die Schweizer Opferhilfe stiess, sie vereinbarte einen Termin für die nächste Woche. Als Nina zu ihrem Termin erschien, war sie sehr froh, dass Mirjam ihr bei der Beratung zur Seite stand. Es wurde ihr klar, wie sie psychisch mit falschen Entschuldigungen und Versprechen manipuliert wurde. Nina wusste nun, dass es so nicht weiter ginge und trennte sich von Kevin. Heute lebt Nina mit ihren zwei Kindern allein und ist jeden Tag dankbar, nicht mehr Opfer von häuslicher Gewalt zu sein. 
 
-![](textfeld-reportage.png)
-
 ![Abbildung: Gewaltspirale](screenshot-1-.png)
+
+![](textfeld-reportage.png)
 
 Leider bleiben Opfer von häuslicher Gewalt in dieser immer sich wiederholenden Spirale stecken, wenn keine aussenstehende Person ihnen hinaushilft, wie Mirjam bei Nina. Aber was kann man tun, wenn Freunde/Bekannte unter häuslicher Gewalt leiden? Am besten ist es, erstmal der Person zuzuhören und Verständnis zu zeigen. Danach kann man sich Hilfe bei der Fachstelle Häusliche Gewalt, im Frauenhaus oder bei einer der anderen untenstehenden Adresse suchen. Häusliche Gewalt gab es schon immer und wird es in der Zukunft immer noch geben, wenn wir als Gesellschaft nicht dagegen ankämpfen.  
 
